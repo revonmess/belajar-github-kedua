@@ -1,3 +1,3 @@
 # belajar-github-kedua
-Hearts2Heart
+Hearts2Hearts
 Carmen, Jiwoo, Yuha, Stella, Juun, A-na, Ian, Ye-on
